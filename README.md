@@ -1,0 +1,2 @@
+# airdrop
+only for degen
